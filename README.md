@@ -35,3 +35,7 @@ CONCLUSION
 
 I have learned a lot while doing all the 5 tasks in this Digital Literacy project. It helped me a lot to learn about the things happening around the digital platforms and it made me familiar with the websites and platforms that are very useful in doing a particular work. This project made me learn how to use Canva to make presentations, then I learned the ethics to write a professional email as a student, then learned some coding in the HackerRank, then I connected with many people on LinkdIn platform. After that I learned the cyber crime problems happening in today’s digital world, and the solutions to prevent any cyber crimes.
 
+
+
+https://docs.google.com/forms/d/e/1FAIpQLSeBsx2L1kZvOfnp4SSqkUiusWstRljHrigedfcOXunzUlOyHA/viewform?usp=publish-editor
+this is the link of quiz
